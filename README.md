@@ -1,1 +1,0 @@
-# khazanati-joo
